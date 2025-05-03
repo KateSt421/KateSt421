@@ -9,4 +9,5 @@
 🚀 Давайте создавать крутые вещи вместе!
 
 Портфолио: https://linktr.ee/Kate421421?utm_source=linktree_profile_share&ltsid=52e19062-cd0f-4e73-b3a2-3dc23298f3a7
+
 Tg: @Ekaterina421
